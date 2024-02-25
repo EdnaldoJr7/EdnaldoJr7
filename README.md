@@ -9,4 +9,3 @@ Meu nome é Ednaldo Junior
 ### Você pode entrar em contato comigo 📬
 juniorednaldo85@gmail.com
 
-![](https://media.tenor.com/Oq6e1kC6oSsAAAAS/supreme-king.gif)
